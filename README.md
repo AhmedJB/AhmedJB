@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently Studying at **National School of Applied Sciences**
 
-- ⚡  I'm currently working as a freelancer feel free to contact me : **teamsky.work@gmail.com**
+- ⚡  I'm currently working as a freelancer feel free to contact me at **ahmed.jabnati@gmail.com**
 
 - 🌱 I’m currently learning **Data Science**
 
